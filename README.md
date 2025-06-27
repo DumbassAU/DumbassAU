@@ -7,7 +7,6 @@
 - 💬 Ask me about nothing
 - 📫 How to reach me: Go to me irl, my location is planet earth
 - 😄 Pronouns: that
-- ⚡ Fun fact:
-- Another fact: i was noticed in AOU discord server!1!1!!1! very true!!1!1
+- ⚡ Fun fact: i am a uhamanhuman
 
 I am coding on OHIO+ & RIZZ#, learning SIGMA++. I made **all** my projects by myself without forking stuff.
